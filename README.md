@@ -1,0 +1,2 @@
+# ThewizardofInk
+GitHub Pages
